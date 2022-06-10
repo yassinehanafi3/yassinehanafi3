@@ -4,7 +4,7 @@ I am a moroccan computer science student passionate about new technologies.
 
 - 📖 Learn anything my hands get on
 - 🎮 Play video games for fun
-- 🫖 Refuse to code without drinking my green tea
+- 🍵 Refuse to code without drinking my green tea
 - 🌐 Have 50 internet tabs open at any given time
 
 
